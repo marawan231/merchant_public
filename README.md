@@ -52,3 +52,12 @@ This project is licensed under the MIT License. See the [LICENSE](LICENSE) file 
 
 ![Apple iPhone 11 Pro Max Presentation (1)](https://github.com/marawan231/merchant_public/assets/81522801/07318f8b-8740-4ebe-99a6-4db6bd95a4be)
 
+
+
+
+
+
+
+![Apple iPhone 7 Presentation](https://github.com/marawan231/merchant_public/assets/81522801/15f408f4-8bc7-48f6-bdf3-b1b370ac1d77)
+
+
